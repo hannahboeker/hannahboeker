@@ -4,8 +4,8 @@
 
 Say [HELLO](https://www.instagram.com/hannahboeker/)
 
-<img width="173" height="414" alt="ac004c87-6ebe-4f8b-b6a4-6b9defad80ce" src="https://github.com/user-attachments/assets/db76a7e7-f0f9-441a-aed4-13336f5ae83d" />
 
+![Komp 2](https://github.com/user-attachments/assets/8356440d-aedd-46a5-8660-7e6cf128d351)
 
 
 
@@ -25,3 +25,9 @@ Say [HELLO](https://www.instagram.com/hannahboeker/)
      |  |____||_   |____|  |___|  |____||_   |____|  |
      |_/______\|;|_|;/______\|;|_|;/______\|;|_|;/__|
     /_________\.;   ./_________\.;   ./_________\.;  \
+
+
+
+![HaFra__--ar_11_--bs_1_--motion_low_--video_1_13c1fa34-f587-4b1f-b7e9-bec1ff802910_0](https://github.com/user-attachments/assets/56ec7d15-87eb-4ecf-8b85-70e85a7fe00d)
+
+
